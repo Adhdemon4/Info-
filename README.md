@@ -1,17 +1,17 @@
-# Info-
-C+H, INT, TC, CD
-transmasc + Gay
-if i have "fictkin" in my name on any cosplays, please dont roleplay as that character around me or joke about me not being the character! it makes me really uncomfortable T_T
-doubles are usually ok unless stated otherwise!
+# Info ♡ﮩ٨ـﮩ
 
-i love to C+H with others and its my way of saying i like your cosplay! if you feel uncomfortable with that please just tell me not to! ^ ^
+📞 ….    He / it / cyr / hxm / vamp  ;   Dollboy  🖳 puppyboy 
 
-i usually will kiss on ponytown just as a way to express i like your skin!
+🍙 ….   worshipping & obsessive yan.  ✿  D/A IRL
 
-ships ok to interact, as long as their not proship/darkship 
+🐾 ….   Lifestyle jirai ,TW SHBLR user. ‎ ‎ ‎ ‎ ‎ ‎ ‎ ܄ ͜͝܄ allotheist
 
-he/it/xe/ze || allan/gutz name wise
+✉️ …. please C+H , PM open ໒꒱. cover discomf 
 
-DNI list on my pronouns.cc acc (read that before you interact with me)
+♟️ …. check p.cc for DNI , kins , etc 
+
+🤍 …. fandoms ; Angels of death ( main hyperfixation ) , RPG maker horror , danganronpa , WTDSIK , IDV , PASWG
+
+and way more )) 
 
 
