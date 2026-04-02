@@ -1,9 +1,10 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
     ﹉﹉﹉﹉﹉˗ˏˋ𐂯ˎˊ˗﹉﹉﹉﹉﹉
          ╱| ╱|
-‎   ( \ (｡• ﻌ•｡)〝₎₎ intro template! ✦₊ ˊ˗ 
+‎   ( \ (｡• ﻌ•｡)〝₎₎ intro ✦₊ ˊ˗ 
 ╭ ─U─U────────── ✦ ⁺.
 ╰─ ꩜ about me.ᐟ
+
  𓉸 ┇name: Danny ᴼᴿ daniel 
 𐂯┇pronouns: he / it / cyr / hxm / vamp
  𓉸 ┇ IRL kin  ;  Endel 
