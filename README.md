@@ -17,8 +17,8 @@
  𓉸 ┇ IRL kin  ;  Endel 
 
 ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ 
-
 ╰─ ☆ Boundries ] ...
+
  𓉸 ┇pony town specific : cover discomfor ; very social ! always INT unless stated otherwise , C+H lover ! 
  ( cover can be ok if in the case of C+H ) 
  
