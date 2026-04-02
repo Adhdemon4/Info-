@@ -32,9 +32,9 @@ DA / panchara of danny from angels of death ; please feed into our delusions !
 ╰─ ꩜ interests & more.ᐟ
  𓉸 ┇likes: ANGELS OF DEATH !! our main hyperfixation , please talk to us about it !! rpg maker horror , danganronpa ,eyes , horror , J-fashion , oshikatsu
              
-𐂯┇dislikes: everythin my dni .. 
+𐂯┇dislikes: everything my dni .. 
 
- 𓉸 ┇yan types :july 28 
+ 𓉸 ┇yan types : worshipping , gurodere , obessive 
  
 𐂯┇timezone: eastern daylight time 
 
