@@ -3,7 +3,10 @@
 ‎𓊆ྀི  𓈒  ݁  ⠀⁦‪#⠀intro ⠀ ♡ .𓏼༷˚̣ 
 
 ‎⠀⠀⠀ ⠀ ⠀𓈒 ݁ danny 𓈒╺݁  ⠀he ノ hym  ྀིྀི 𓈒 ݁ 
-‎⠀ ⠀ ⠀ ♡⃝ ◜ o ◝݂ ྀི১ 𓂂݁ sadako yamamura IRL   𓈒╺݁ ♥︎  
+
+‎⠀ ⠀ ⠀ ♡⃝ ◜ o ◝݂ ྀི১ 𓂂݁ sadako yamamura IRL   𓈒╺݁ ♥︎   
+
 ‎⠀   ⠀ ⠀ lifestyle jirai  𓈒╺݁  fictionkin 𓈒 
+
 
 ‎⠀ ⠀ ⠀ ⠀ ⠀
