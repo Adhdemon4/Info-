@@ -5,4 +5,3 @@ danny  .  he / hym
 
 C + H , INT . do not cover unless friend. 
 
-<img width="1640" height="664" alt="image" src="https://github.com/user-attachments/assets/9c806f99-61ef-4b3f-b095-68c59243c742" />
