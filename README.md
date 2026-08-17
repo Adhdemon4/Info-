@@ -1,9 +1,5 @@
-<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/d5a97429-165f-403b-aab8-673f0124b15c" />
-<img width="800" height="555" alt="image" src="https://github.com/user-attachments/assets/a9cc8362-f06f-4011-bc8f-a9fd5990d385" />
+<img width="540" height="4" alt="image" src="https://github.com/user-attachments/assets/80e3a1db-08e1-4ba6-a2fc-40a3d4ff3fc4" />
+<img width="540" height="4" alt="image" src="https://github.com/user-attachments/assets/db3f17db-3c88-42e4-b09f-089fdd5c3497" />
+<img width="800" height="410" alt="image" src="https://github.com/user-attachments/assets/3149583f-42ec-4670-a484-decd550cbccf" />
+<img width="800" height="555" alt="image" src="https://github.com/user-attachments/assets/3c50907a-7cb2-43ef-8d5b-70d755cf8d3c" />
 
-
-                              ᶻᶻ﹒ᴗ　 ̮　C + H always 　،　INT 　𓈒　୨୧.          
-
-                                   𓏥　Do not cover . OOC 、⿻.  
-
-                                      𓊆 　no yume RPs　 ᤳ 
