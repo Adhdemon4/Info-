@@ -6,7 +6,7 @@
  
  
 
- 𓉸 .  danny  ou  Daniel
+  𓉸   .     danny  ou  Daniel  🫀ྀིྀིྀིྀིྀི  C + H  ,  Int  ,  CD  ,  ask for RPs / Ships . 
  
 ‎ ‎  ‎  ‎ ㅤ♡. ‎ ‎  hi ‎  / ‎  hiem ‎ ‎    ⏝⏝  ‎ ‎  Fictiokin  &  IRL 
   
