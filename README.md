@@ -4,5 +4,6 @@
  たとえば僕と2人で
  
  .                 𓉸     Danny  ou  Daniel 
+ 
 ‎ ‎  ‎  ‎ ㅤ♡. ‎ ‎  hi ‎  / ‎  hiem ‎ ‎    ⏝⏝  ‎ ‎  Fictiokin  &  IRL 
   
