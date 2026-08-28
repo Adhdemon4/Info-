@@ -6,8 +6,7 @@
  
  
 
- 
-   .              𓉸   danny  ou  Daniel
+ 𓉸 .  danny  ou  Daniel
  
 ‎ ‎  ‎  ‎ ㅤ♡. ‎ ‎  hi ‎  / ‎  hiem ‎ ‎    ⏝⏝  ‎ ‎  Fictiokin  &  IRL 
   
