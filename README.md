@@ -1,5 +1,7 @@
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/38ee3f87-bfa8-4598-8401-aad482f31c5a" />
 
-<img width="800" height="410" alt="image" src="https://github.com/user-attachments/assets/3149583f-42ec-4670-a484-decd550cbccf" />
+  ❝  君があこがれてた恋を 今追いかけてゆこうか
+たとえば僕と2人で
 
-        
-                     ꒰      https://pronouns.cc/@Japanesevodka  ֺּׅ𓏽⑅
+  ㅤ♡.   hi  /  hiem    ⏝⏝   Fictiokin  &  IRL 
+  
