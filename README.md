@@ -6,7 +6,6 @@
 
 <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/4c6cdeae-75f7-4508-9b6a-6320b2a262fa" />
 
-<a href="#" class="button icon search">Search</like>
 
 
 <img width="1280" height="300" alt="image" src="https://github.com/user-attachments/assets/3944bd37-bda1-4848-9ac4-54f11d0f6dfe" />
