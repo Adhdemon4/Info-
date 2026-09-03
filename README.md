@@ -12,7 +12,6 @@
   
 ‎ ‎‎          ‎ ‎‎ ❤︎ ‎ C + H  ,  Int  ,  CD  ,  ask for RPs / Ships .
 
-<img width="700" height="120" alt="image" src="https://github.com/user-attachments/assets/cca7b85c-3325-40ba-a8bd-7afdcccf1f3b" />
 
-
-<img width="1280" height="300" alt="image" src="https://github.com/user-attachments/assets/18063223-5eb6-4194-9ea9-756838c76cde" />
+<img src="https://user-images.githubusercontent.com/<img width="1558" height="120" alt="image" src="https://github.com/user-attachments/assets/2aa7c918-af73-4ee6-bd0a-77bfe73ab54b" />
+" width="200" 
