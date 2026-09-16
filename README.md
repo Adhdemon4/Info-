@@ -6,5 +6,6 @@
 
  Danny  ou  daniel  ꕀ  hi  /  hiem
  
- Fictiokin  ,  IRL  ,  living doll    
-    C+H ,  INT  ,  DNC  ,  CD
+⧽  Fictiokin  ,  IRL  ,  living doll    
+ 
+   C+H ,  INT  ,  DNC  ,  CD  ✎ᝰ
